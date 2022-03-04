@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Fortnite-Burger, Creator of the Bonkle Buck
-- 📫 How to reach me: jacob@sigmamail.ca
+- 📫 How to reach me: jacobtehmoose@gmail.com
 
 <!---
 Fortnite-Burger/Fortnite-Burger is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
